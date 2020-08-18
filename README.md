@@ -1,0 +1,2 @@
+# latih01
+cobacoba
